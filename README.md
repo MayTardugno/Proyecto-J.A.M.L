@@ -1,1 +1,1 @@
-# Proyecto-J.A.M.L
+# Proyecto-living-slate
